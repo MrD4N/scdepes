@@ -10,3 +10,6 @@ Cara pemakaian
 Terus liat di penyimpanan internal
 
 Thanks:v
+
+
+Nanti akan w update terus gayn:v
